@@ -1,1 +1,1 @@
-# About-Hapsatou
+Hello, I am Hapsatou Fatty. My birthday is Febuary 21st. I am the second oldest out of 5 children. I like to read, color, paint, play the violin, etc. I have a lot of hobbies. I like learning as long as people teach properly. My favorite color is blue. My favorite number is 2, 4, 12, and 21. I am not really tech savvy. I don't like being on tech for long periods. I workout every morning. I like eating healthy. I have a friend group of about 6 people.  # About-Hapsatou
